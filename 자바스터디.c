@@ -3,3 +3,4 @@
 3. 서버스터디
 4. 휴식qweqweweq
 5. 휴식qweqweqwewewe
+6. 영재컴퓨터
